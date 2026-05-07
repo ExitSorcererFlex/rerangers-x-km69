@@ -1,4 +1,4 @@
-
+re:rangers x Script new offers the most advanced re:rangers x Script, with invisibility and auto-farm. Perfect for dominating any match.
 
 
 
